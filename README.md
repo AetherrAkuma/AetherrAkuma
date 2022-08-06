@@ -2,7 +2,7 @@ Yahalooo Minnaa Sannn!!😜
 
 Im Aetherr(Not my Original Name) and 19 Year's Old✨
 
-Currently I'm 1st Year College and an Hobby Programmer
+Currently I'm 1st Year College and a Hobby Programmer
 
 My First Programming Language was Java but downgraded to Batch Script, Later this 2022 I've Learned Python by myself and Still Stu-dying to learn it more
 
